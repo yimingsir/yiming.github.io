@@ -1,3 +1,3 @@
 ## Welcome to My Blog
 
-zhaoyiming.fun
+https://zhaoyiming.fun/
