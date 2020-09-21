@@ -1,3 +1,3 @@
-## Welcome to My Blog
+## 赵一明的博客
 
-https://zhaoyiming.fun/
+https://blog.zhaoyiming.fun/
